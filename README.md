@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Krishna-Sneha
+- 👋 Hey, I’m @Krishna-Sneha
 - 👀 I’m interested in Web and App Development
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on Java and App development Projects
