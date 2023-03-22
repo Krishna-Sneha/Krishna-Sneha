@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Krishna Sneha</h1>
+<h1 align="center">Hey Folks 👋, I'm Krishna Sneha</h1>
 <h3 align="center">A passionate developer</h3>
 
 <img align="right" alt="coding" width="400" src="https://miro.medium.com/max/1400/1*qdAW1TjCN57h1lbuuzvchg.gif">
