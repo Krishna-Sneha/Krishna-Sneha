@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **snehaaes@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1DjqJfOwt6vo6YDgXYsk6_w8mhjJMiEbh/view?usp=sharing](https://drive.google.com/file/d/1DjqJfOwt6vo6YDgXYsk6_w8mhjJMiEbh/view?usp=sharing)
+- 📄 Know about my experiences[https://drive.google.com/file/d/1DjqJfOwt6vo6YDgXYsk6_w8mhjJMiEbh/view?usp=sharing](https://drive.google.com/file/d/16t08Wk0l37FART33agXtQAr1myh8g3GM/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
